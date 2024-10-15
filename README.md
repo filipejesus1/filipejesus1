@@ -15,7 +15,7 @@
 
 📫 **How to reach me**:
 - Email: filipe.sj_@hotmail.com
-- LinkedIn: [Filipe Jesus](www.linkedin.com/in/filipedjesus1)
+- LinkedIn: [Filipe dos Santos Jesús](www.linkedin.com/in/filipedjesus1)
 
 
 
